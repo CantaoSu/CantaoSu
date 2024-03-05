@@ -9,6 +9,6 @@
 - 📫 How to reach me: cantaosu@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact:
-  1) I used to be a professional swimmer
+  1) I used to be a professional swimmer for 10 years
   2) my first job was work as a flight attendant
 

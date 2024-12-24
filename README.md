@@ -6,7 +6,7 @@
 - 👯 I’m looking to collaborate on applying speech technology to healthcare
 - 🤔 I’m helping people visually impaired on **[Be My Eyes](https://www.bemyeyes.com/)** (spread out as you can)
 - 💬 Ask me about speech recognition, speech synthesis, linguistics and speech sounds
-- 📫 How to reach me: cantaosu@gmail.com
+- 📫 How to reach me: cantaosu0109@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact about me:
   1) I used to be a professional swimmer for 10 years
